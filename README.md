@@ -1,6 +1,6 @@
 # The Sparks Foundation - GRIP
 
-#Pranay Anand C
+Author - Pranay Anand C
 
 LinkedIn Profile (www.linkedin.com/in/pranay26)
 
